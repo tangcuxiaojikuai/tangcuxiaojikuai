@@ -14,4 +14,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-🌱 A ctfer & A crypto learner
+🌱 a ctfer & a crypto learner
+🌱 member of cyberCryer, N0wayback, r3kapig and CatTrainingForce
